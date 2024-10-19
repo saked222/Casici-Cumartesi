@@ -27,4 +27,4 @@ Casibom’te Sizi Bekliyor
 4. Jet hızında para çekme işlemleri
 5. Curacao lisans güvencesi
 6. Casibom giriş yaparak siz de bu benzersiz avantajlardan yararlanın ve kazanmaya başlayın!
-Casibom GÜNCEL GİRİŞ
+Casibom GÜNCEL GİRİŞ.
